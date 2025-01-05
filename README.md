@@ -32,4 +32,4 @@ Regelmäßige Events: Nimm an Community-Events, Quizzen und Wettbewerben teil.
 Voice Chats: Trete unseren Voice Chats bei, um dich live mit anderen Mitgliedern auszutauschen und gemeinsam zu spielen.
 Komm zu BL4CKUNITY und werde Teil einer lebendigen und unterstützenden Community. Egal, ob du ein erfahrener Gamer, ein Programmierprofi oder ein Anfänger bist, bei uns bist du herzlich willkommen!
 
-https://discord.gg/bl4ckunityBL4CKUNITY.de
+https://discord.gg/bl4ckunity
