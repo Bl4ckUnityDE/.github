@@ -1,5 +1,4 @@
 ``👑`` **__Server Inhaber__** @hfvt_
-``🍰`` **__Server Erstellt__** <t:1717851420:F>
 
 **Willkommen bei BL4CKUNITY ``⚡`` GERMANY**
 
